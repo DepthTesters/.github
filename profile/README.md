@@ -7,7 +7,7 @@
 
 - Its not a zero sum game.
 - Dont be a dick.
-- Being a dick my mistake happens.
+- Being a dick by mistake happens.
 - So be kind.
 
 <3 
