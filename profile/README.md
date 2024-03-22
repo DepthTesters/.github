@@ -1,6 +1,4 @@
-## Hi there 👋
-
-## Lets make better games together. 💃🥳
+## Lets make better games together!! 💃🥳
 
 - Youre in control.
 - Invite anyone you trust.
